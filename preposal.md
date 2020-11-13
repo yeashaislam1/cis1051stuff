@@ -10,4 +10,4 @@ Plan to do it on my own
 
 ## Do you have any questions of your own?
 
-Not at the moment. Will as in office hours if needed.
+Not at the moment. Will ask in office hours if needed.
